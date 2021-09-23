@@ -1,2 +1,8 @@
 # Get Canva Pro For Free (Lifetime)
-Get Canva Pro for free with team invite
+Links :
+
+Team 1
+(Coming soon)
+
+Team 2
+(Coming soon)
